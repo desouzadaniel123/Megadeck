@@ -1,0 +1,2 @@
+# Megadeck
+To organize any particular function such as award shows, music concert and New Year party arrangement must be perfect. For this one must contact a well known staging company like Megadeck which operates mainly in Sydney, Melbourne and Gold Coast. But people from other parts of Australia also prefer them because of the quality. They provide accessories like set carts, acrylic, stairs, chair risers, handrails etc.
